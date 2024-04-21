@@ -1,4 +1,4 @@
-Privacy Policy for Star-Taxi  At star-taxi.net, accessible from info@star-taxi.net, one of our main priorities is the privacy of our visitors. This Privacy Policy document contains types of information that is collected and recorded by star-taxi.net and how we use it.
+Privacy Policy for ستار تكسي  At star-taxi.net, accessible from info@star-taxi.net, one of our main priorities is the privacy of our visitors. This Privacy Policy document contains types of information that is collected and recorded by star-taxi.net and how we use it.
 
 If you have additional questions or require more information about our Privacy Policy, do not hesitate to contact us.
 
